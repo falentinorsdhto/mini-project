@@ -48,5 +48,3 @@
 
 <hr>
 
-
-INSTAGRAM REDESIGN APP  With __😈__ Hmida71 🚀
